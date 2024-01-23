@@ -1,2 +1,10 @@
 # Pertemuan2
-##Team develope pulu pulu##
+❤<br>               ❤<br>
+ ❤  <br>           ❤<br>
+  ❤  <br>         ❤<br>
+   ❤ <br>        ❤<br>
+    ❤  <br>     ❤<br>
+     ❤ <br>    ❤<br>
+      ❤ <br>  ❤<br>
+       ❤<br> ❤<br>
+        ❤<br>
